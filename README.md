@@ -15,7 +15,7 @@
 ` ੈ˚ ★ <b>savana</b> ✦ <i>cixija</i> ✦ <b>izzy</b> ✦ <i>jay</i> ✦ <b>rimia</b> !! ·˚ *
 <br> ୨୧・┈┈・┈┈・୨୧
 <br> ೃ⁀➷ <i>she ☆ they</i> ⋯ <b>ENFP</b> ⋯ <i>german</i> !! ヽ(o＾▽＾o)ノ . *. ⋆
-<br> ↳ ♡₊˚. <b>nov 28</b> ⋯ <i>autism <img src="https://watermelon.crd.co/assets/images/gallery01/3a2f56e3.gif?v=6332de85"> ADHD</i> ⋯ furina kinnie ! ˚◞♡ ⃗
+<br> ↳ ♡₊˚. <b>nov 28</b> ⋯ <i>autism <img src="https://watermelon.crd.co/assets/images/gallery01/3a2f56e3.gif?v=6332de85"> ADHD</i> ⋯ furina & hu tao kinnie ! ˚◞♡ ⃗
 <br> <img src="https://watermelon.crd.co/assets/images/gallery16/57de5ebd.png?v=6332de85">
 </p>
 <p align="center">
